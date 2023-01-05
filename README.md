@@ -28,3 +28,10 @@ Me viene tu nombre, tu cara
 Tu risa y tu pelo, ey
 Dime dónde tú está', que yo por ti cojo un vuelo
 Y a Yonaguni le llego, ey
+
+caso 6
+No me busque' en Instagram
+Mami, búscame en casa
+Pa' que vea' lo que pasa, ey
+Si tú me prueba', te casa', ey
+Ese cabrón ni te abraza
