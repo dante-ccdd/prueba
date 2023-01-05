@@ -35,3 +35,9 @@ Mami, búscame en casa
 Pa' que vea' lo que pasa, ey
 Si tú me prueba', te casa', ey
 Ese cabrón ni te abraza
+
+caso 7
+Y yo loco por tocarte
+Pero ni me atrevo a textearte
+Tú con cualquier outfit la parte'
+Mami, tú ere' aparte
